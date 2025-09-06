@@ -27,8 +27,10 @@ https://github.com/user-attachments/assets/5f694ef2-93de-4e7d-90f8-6d48319835cc
 
 There was another Dominant who had gotten Bear kicked to to the curb (I believe they went by Q?) and has since been passed over for yet ANOTHER Dominant.
 
-Now we are on to Chiefy... The person she is currently chasing... Despite having the submissive Jacob panting after her....
+Now we are on to Chiefy... They've stumbled across this repository and have since dropped Fallen like a hot potato after reviewing the evidence.
 
-Fallen needs to be stopped. Now. Immediately. Before more people get hurt. This list does NOT include the ones who turned her down. To be honest Chiefy is closer to 8 or 9 than the 6 that this list makes them look like.
+There is also the submissive Jacob panting after her....
+
+Fallen needs to be stopped. Now. Immediately. Before more people get hurt. This list does NOT include the ones who turned her down. To be honest Jacob is closer to 9 or 10 than the 7 that this list makes them look like.
 
 I hate to call these people out, or blast their details here, and I won't say how I acquired the information off of HailDread since even SHE isn't aware that I've gotten it. What I WILL say is that despite even HER best efforts with the VPNs (yes, multiple), and the secured network frame, and the hardened ports, I was able to get what I needed (thank you Discord). 
